@@ -1,3 +1,5 @@
+THE OFFICIAL GITHUB ACCOUNT IS BACK: https://github.com/glixzzy/blooket-hack
+
 gliz got a cease and desist by Blooket. He now has deleted everything due to the cease and desist.
 
 #freegliz Do not ever forget the legend 🙏
